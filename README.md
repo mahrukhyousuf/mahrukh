@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **mahrukhyousuf514@gmail.com**
 
-- ⚡ Fun fact **I was born and raised across Africa**
+- ⚡ Fun fact **I was born in Yemen and raised across Africa**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
