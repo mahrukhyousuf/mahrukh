@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 Code, design, and ideas - that’s my toolkit. I like building things that work well, look good, and make sense. Quietly ambitious, endlessly curious, and always optimizing whether it’s a product, a process, or a paragraph.<br><br>
 
 
